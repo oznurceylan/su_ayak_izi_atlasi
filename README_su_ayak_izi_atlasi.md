@@ -3,8 +3,6 @@
 
 ATLAS, Birleşmiş Milletler Sürdürülebilir Kalkınma Amaçları doğrultusunda yarınlara daha yaşanabilir bir dünya bırakma isteğiyle 'Temiz Su ve Sanitasyon' için büyük şirketlerin kendilerine nasıl bir yol çizebilecekleri konusunda onlara danışmanlık sağlayan bir girişimdir. 
 
-![alt text](https://r.resimlink.com/Y8KAexV.png)
-
 Yaptığımız bu projeyle şirketlere şeffaf ve güvenilir bir ortamda iş stratejilerinin sürdürülebilir bir politika çevresinde gelişip gelişmediğini gösteriyoruz. Geliştirmiş olduğumuz standartlara göre puanlama yapıyoruz. Su ayak izleri, olması gerekenin ne kadar fazla üzerindeyse de almış oldukları puanlar o kadar yüksek oluyor. Bu durumda yüksek puan almak iyiye işaret etmiyor. Her şirketi kendi bünyesinde ve sektöründe değerlendirip kendilerine uyan iş stratejilerine yönlendiriyoruz. İş politikalarında uzun vaade de iyileşmeyi kabul eden şirketler bulundukları bölgelerde ve endüstri alanlarında suyun daha etkin ve daha az kullanılmasını sağlıyor. Böylece mümkün olan en az miktarda su ile etkin çalışmalara imza atabiliyorlar. Bu durum, su ayak izinin daha az olduğu bir toplumda yaşan kişilerin refah seviyelerinde yükselme olmasına olanak sağlıyor.
 
 Peki hizmetlerimiz tam olarak neler? Şu şekilde özetleyebiliriz: 
@@ -14,9 +12,6 @@ Peki hizmetlerimiz tam olarak neler? Şu şekilde özetleyebiliriz:
 - Analizlerden sonra ihtiyacınıza yönelik olarak işbirliği yaptığımız su sanitasyonu hizmeti veren firmalar ile problemlerinizi çözüme kavuşturacağız. ​
 
 - İşbirliği yaptığımız firmalarda size özel indirimler sağlayarak, kullanılan suyu azaltarak ve geri dönüşümünü arttırarak firmanıza katkı sağlayacağız.
-
-
-![alt text](https://r.resimlink.com/g2o4H6nZ.png)
 
 ## Neler Yaptık? 
 
@@ -38,8 +33,6 @@ Biz, Hacettepe Üniversitesi çatısı altında tanışan 21. yüzyılın çocuk
 Henüz küçük yaşlarımızdan itibaren yetiştiğimiz şehirlerde, gelişmenin ve büyümenin yararlarının yanında plansız ve doğa dostu olmayan projelerle gelen değişimlerin ne kadar yıkıcı sonuçlarının olduğuna da yaşayarak tanık olduk. 
 
 Sürdürülebilir Kalkınma Amaçları doğrultusunda yarınlara daha yaşanabilir bir dünya bırakma isteğiyle 'Temiz Su ve Sanitasyon' için büyük tehditler içeren şirketlerin kendilerine nasıl bir yol çizebilecekleri konusunda onları bilinçlendirerek yarının suyunu korumayı hedefliyoruz.
-
-![alt text](https://r.resimlink.com/7VTs1euo.png)
 
 ## İletişim
 
